@@ -1,1 +1,32 @@
 # homeschooling-guide
+
+## Resources
+
+- https://www.gov.uk/national-curriculum
+- https://hslda.org/post/homeschooling-in-portugal-a-72-year-history-of-freedom
+- https://www.expatarrivals.com/answers/self-employed-and-homeschooling-in-portugal
+- https://homeschoolingemportugues.com/
+- https://bysuzike.com/homeschooling-in-portugal-links-documents/
+- https://oplschool.com/pt/as-nossas-escolas/
+- https://progressiveschooling.com/homeschool-laws-in-europe-by-countries/
+- https://www.youtube.com/watch?v=em_TqfHd5I4
+- https://www.expatarrivals.com/europe/portugal/education-and-schools-portugal
+- https://www.colegiosjose.pt/pt/homeschooling-program-voar/
+- https://cambrilearn.com/homeschooling/portugal
+- https://ahg.edu.pt/regime-ensino-homeschooling.php
+- https://www.ericeiraliving.com/homeschooling-portugal-frequently-asked-questions/
+- https://oplschool.com/pt/homeschooling-pt/
+- https://www.mulherportuguesa.com/familia/filhos-enteados/a-escola-em-casa-homeschooling/
+- https://www.pureportugal.co.uk/blogs/homeschool-experiences/
+- https://www.verywellfamily.com/best-online-homeschool-programs-4842632
+- https://homeschoolacademy.com/home-school-programs/online-homeschooling/
+- https://schoolhouseteachers.com/8-best-online-homeschool-programs/
+- https://www.powerhomeschool.org/
+- https://www.homeschool.com/articles/free-online-virtual-schools/
+- https://www.time4learning.com/homeschool-online.htm
+- https://www.thoughtco.com/free-homeschool-resources-4151635
+- https://wolseyhalloxford.org.uk/
+- https://edbrasil.org/material-educacional-2-e-3-anos/
+- https://www.gov.uk/home-education
+- https://www.gov.uk/government/publications/elective-home-education
+- https://www.gov.uk/national-curriculum
